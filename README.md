@@ -20,3 +20,11 @@ Bahasa Pemrograman
 tugas UAS Bahasa Pemrograman
 
 # Modul program daftar nilai mahasiswa bahasa phyton
+https://drive.google.com/file/d/13r7cbGdtQKI5QtMNjRxuv6bKQdJwZyfp/view?usp=share_link
+
+# Penjelasan dalam bentuk vidio youtube
+https://youtu.be/gGNNP6fYP1E
+
+
+                                                            -------TERIMAKASIH---------
+                                                            
